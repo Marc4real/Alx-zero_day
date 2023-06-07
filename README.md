@@ -1,1 +1,1 @@
-my first readme
+Only one GOD
